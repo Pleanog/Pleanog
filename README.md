@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Pleanog
+- 👀 I’m interested
+- 🌱 I’m currently learning
